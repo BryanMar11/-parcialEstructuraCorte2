@@ -1,0 +1,1 @@
+# -parcialEstructuraCorte2
