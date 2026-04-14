@@ -8,4 +8,4 @@
 
 ## Representación Visual
 
-![](https://upload.wikimedia.org/wikipedia/commons/thumb/2/29/Data_stack.svg/300px-Data_stack.svg.png)
+![](https://0.academia-photos.com/attachment_thumbnails/42952839/mini_magick20190216-14549-1uzasyp.png?1550380092)
